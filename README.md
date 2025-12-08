@@ -1,5 +1,6 @@
 # Wall-Of-Shame
 Making fun of people who need to be humbled. Mostly from Counter Strike. I'll also include some amazing people, it's just more fun to poke the ones who deserve it.
+If you're seeing this, don't put yourself on this list. Be the good in the world. It's worth it 
 
 ## Internet Gangsters Tried to Dox Me, But Only Found My Github
 ### 3/25/25
