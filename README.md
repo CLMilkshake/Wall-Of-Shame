@@ -1,5 +1,6 @@
 <img width="486" height="45" alt="image" src="https://github.com/user-attachments/assets/2e7e43ba-62e2-4109-a38e-e25c424b2194" />
 
+^^ ENDORSEMENTS ^^
 # Wall-Of-Shame
 Making fun of people who need to be humbled. Mostly from Counter Strike. I'll also include some amazing people, it's just more fun to poke the ones who deserve it.
 If you're seeing this, don't put yourself on this list. Be the good in the world. It's worth it 
